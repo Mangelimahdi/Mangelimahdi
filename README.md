@@ -1,4 +1,6 @@
 Mahdi Mangeli | Developer🌍
-Programming the magic of 
-the modern world💻
-I Design creatively✨
+✔ He is interested in computer and programming, loves solving problems, has been for 2 years
+I work seriously in the field of web programming and look for it every day
+I am gaining more knowledge and progress and I try to improve the quality of my work
+to present
+
